@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ally10129
-- 👀 I’m interested in manga, embroidering and fashion
-- 🌱 I’m currently learning whatever I want
-- 💞️ I’m looking to collaborate on some top projects that are very important. 
+- 👀 I’m interested in embroidery and fashion
+- 🌱 I’m currently working on a fashion show
+- 💞️ I’m looking to collaborate on some top projects. 
 - 📫 How to reach me, allyson10129@gmail.com
 
 <!---
